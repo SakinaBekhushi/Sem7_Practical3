@@ -1,0 +1,8 @@
+# Sem7_Practical3![1 1](https://user-images.githubusercontent.com/91597249/200113295-4b654035-8127-4680-9aae-4f751cdc46d8.JPG)
+![1 2](https://user-images.githubusercontent.com/91597249/200113298-b28afe84-4bf3-4223-b79c-e08972b1fc73.JPG)
+![2 1](https://user-images.githubusercontent.com/91597249/200113299-a73e5219-e7e5-435b-8270-8bc8386dafd1.JPG)
+![2 2](https://user-images.githubusercontent.com/91597249/200113300-57da3d0b-c202-4302-ba82-1e94c70d077d.JPG)
+![2 3](https://user-images.githubusercontent.com/91597249/200113302-0395bb25-38bd-4d05-9d5a-39fc3f0630d3.JPG)
+![2 4](https://user-images.githubusercontent.com/91597249/200113305-d7882629-b29f-4841-b4a8-7873368a0711.JPG)
+![3 1](https://user-images.githubusercontent.com/91597249/200113306-77f0d5e7-ac72-4def-b066-7dbae10edb63.JPG)
+![3 2](https://user-images.githubusercontent.com/91597249/200113307-8a1fcf22-ef8c-43a4-bcc8-ce77f92e2812.JPG)
